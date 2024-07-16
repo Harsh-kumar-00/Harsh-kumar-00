@@ -2,7 +2,7 @@
 - 👀 I’m interested in art.
 - 🌱 I’m currently learning to move mouse.
 - 💞️ I’m looking to collaborate on nail paint.
-- 📫 How to reach me through messages !?
+- 📫 How to reach me? probably through messages !
 - 😄 Pronouns: hey! / oye!
 - ⚡ Fun fact: time is infinite.
 
