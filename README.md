@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harsh-kumar-00
 - 👀 I’m interested in art.
-- 🌱 I’m currently learning to move mouse.
+- 🌱 I’m currently learning to move the mouse.
 - 💞️ I’m looking to collaborate on nail paint.
 - 📫 How to reach me? probably through messages !
 - 😄 Pronouns: hey! / oye!
