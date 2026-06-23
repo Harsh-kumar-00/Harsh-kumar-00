@@ -8,7 +8,7 @@
 ---
 
 ## 🚀 About Me
-- 🎓 3rd Year Electronics Engineering student  
+- 🎓 4th Year Electronics Engineering student  
 - ⚡ Focused on **GATE + DSA + Projects**
 - 🧠 Learning how systems actually work  
 - 🤝 Open to collaboration (yes… even nail paint if scalable 😏)  
